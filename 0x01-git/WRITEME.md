@@ -1,1 +1,1 @@
-Nnamdi Udeh will soon become a sound software Engineer
+ Nnamdi Udeh will soon become a sound programmer
